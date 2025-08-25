@@ -1,1 +1,1 @@
-Meu curriculo, parcialmente montado :3
+Meu curriculo, parcialmente montado :D
